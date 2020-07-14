@@ -4,4 +4,4 @@
 ##### While thinking about the two letter word that includes the English alphabetical word h and i, 
 [listen to this 1 hour video of music from the German Democratic Republic.](https://www.youtube.com/watch?v=FExnNyMF0_4)
 
-<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/6/60/19860503400NR_Berlin_Palast_der_Republik_Marx-Engels-Platz.jpg/1920px-19860503400NR_Berlin_Palast_der_Republik_Marx-Engels-Platz.jpg" data-canonical-src="https://upload.wikimedia.org/wikipedia/commons/thumb/6/60/19860503400NR_Berlin_Palast_der_Republik_Marx-Engels-Platz.jpg/1920px-19860503400NR_Berlin_Palast_der_Republik_Marx-Engels-Platz.jpg" width="400" />
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/6/60/19860503400NR_Berlin_Palast_der_Republik_Marx-Engels-Platz.jpg/1920px-19860503400NR_Berlin_Palast_der_Republik_Marx-Engels-Platz.jpg" data-canonical-src="https://en.wikipedia.org/wiki/Palace_of_the_Republic,_Berlin" width="400" />
