@@ -1,1 +1,2 @@
-[![wagen](https://user-images.githubusercontent.com/55478663/182243202-40624bc8-5d72-490e-a1c4-425ef5fd4b6c.png)](https://www.press.bmwgroup.com/deutschland/article/attachment/T0309051DE/464281)
+I use spent oil samples to season my cast iron pans.
+I only buy my steaks at Walmart, frozen, and bring them back to life in the microwave.
